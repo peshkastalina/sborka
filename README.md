@@ -1,2 +1,0 @@
-# sborka
-qweqweqwe[eq
